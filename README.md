@@ -1,5 +1,5 @@
 # GitVerse
 
-Here’s somethihng from Praeen.
+Here’s something from Praveen.
 
-Watch teh Srem ehre:
+Watch the Stream here:
